@@ -21,7 +21,7 @@
 
 ## JOIN MY WHATSAPP CHANNEL
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://whatsapp.com/channel/0029VahMZasD8SE5GRwzqn3Z)
+[![MULAYAN](https://telegra.ph/file/efdae640c9b8061ce7da9.jpg)](https://whatsapp.com/channel/0029VahMZasD8SE5GRwzqn3Z)
 
 
 
@@ -29,22 +29,20 @@
 
 ## CONTACT OWNER
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://wa.me/94719199757)
+[![vajira](https://telegra.ph/file/efdae640c9b8061ce7da9.jpg)](https://wa.me/919633433850)
 
 ## JOIN SUPPORT GROUP
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://chat.whatsapp.com/D6w6Qy5yrhp7MmfNcprbO3)
+[![mulayan](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://chat.whatsapp.com/D6w6Qy5yrhp7MmfNcprbO3)
 
 ## MY YT CHANNEL
 
-[![Youtube](https://telegra.ph/file/eebe86c26e98ffeae39ea.jpg)](https://youtube.com/@gamingewingyt6216) 
 
 </details>
 
 ***Click [FORK](https://github.com/VajiraTech/VAJIRA-MD-fork)***
 
-***Click [My web](https://vajira-api-7967fdc132a8.herokuapp.com/)***
-
+*
 <hr>
 
 <hr>
