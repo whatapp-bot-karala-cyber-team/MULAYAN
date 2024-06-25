@@ -29,7 +29,7 @@
 
 ## CONTACT OWNER
 
-[![vajira](https://telegra.ph/file/efdae640c9b8061ce7da9.jpg)](https://wa.me/919633433850)
+[![mulayan](https://telegra.ph/file/efdae640c9b8061ce7da9.jpg)](https://wa.me/919633433850)
 
 ## JOIN SUPPORT GROUP
 
@@ -70,7 +70,7 @@
 
 
 
-## HOW TO DEPLOY 🧚 VAJIRA - ＭＤ 🧚
+## HOW TO DEPLOY 🧚 MULAYAN- ＭＤ 🧚
 
 </div>
 
